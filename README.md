@@ -16,7 +16,7 @@ Me interesa tanto el desarrollo frontend como el backend, y estoy enfocado en se
 
 ## 📫 Contáctame:
 - Email: didacmorillas19@gmail.com
-- [LinkedIn] https://www.linkedin.com/in/tu-linkedin)](https://www.linkedin.com/in/didacmorillas/
+- LinkedIn https://www.linkedin.com/in/didacmorillas/
 
 ¡Gracias por visitar mi perfil!
 
